@@ -1,4 +1,4 @@
-### Hello there 🙏🏽 ! My name is Matheus! I'm currently studying at IFPR (T.I)
+### Hello there 🙏 I'm gay🏽 ! My name is Matheus! I'm currently studying at IFPR (T.I)
 ##
 ### Social Media:
    
