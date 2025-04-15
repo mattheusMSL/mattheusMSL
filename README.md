@@ -1,4 +1,4 @@
-### Hello there 🙏 ! My name is Matheus! I'm currently studying at IFPR (T.I)
+### Hello there! My name is Matheus! I'm a science computer student at UNIOESTE and graduaded in computer technician at IFPR
 ##
 ### Social Media:
    
